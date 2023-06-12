@@ -1,2 +1,2 @@
 # alfmnh
-i'm a student
+long life learner
